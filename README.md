@@ -1,0 +1,1 @@
+# examenMinim1
